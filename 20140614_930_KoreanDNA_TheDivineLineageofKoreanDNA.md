@@ -1,6 +1,6 @@
 
 
-## 240614_930_KoreanDNA_TheDivineLineageofKoreanDNA
+## 20140614_930_KoreanDNA_TheDivineLineageofKoreanDNA
 
 
 ## Date: 2014-06-14
