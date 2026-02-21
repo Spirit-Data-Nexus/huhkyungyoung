@@ -32,7 +32,7 @@ We are curious about the future of our nation and the economy, so let's discuss 
 
 
 ## 00:00:59 Buddha's Perspective on the Future
-![image](https://resource.lilys.ai/images/output_stream_45zlhhpdoh8.png)
+
 Buddha believed that only the present exists, and even that is merely a fleeting moment. People change, age, and transform in these fleeting moments. He taught that one should embrace the process of change itself. For instance, an elderly woman might feel regret thinking about her youth, but such thoughts are unnecessary because the past is gone. Therefore, one should always live in the present. Even applying cosmetics to look prettier is a way of looking into the future. Buddha emphasized that the present is an illusion, a void, and that we often worry and agonize over things that do not truly exist. 
 
 
@@ -45,7 +45,7 @@ The name "Jesus" is also a name we created. During the Goryeo Dynasty, when Kore
 
 
 ## 00:14:00 The Korean Language's Influence on Global Terminology
-![image](https://resource.lilys.ai/images/output_stream_6n4b8ix69il.png)
+
 The term "Messiah" also has roots in Korean. In Sanskrit, it is "Maitreya," which became "Messiah" in Israel and "Mirok" in Chinese. This term spread globally from Korea, as ancient Korea (Gojoseon) once dominated Asia, including India. This explains why many significant figures have names ending in "ya," indicating their greatness. Even in Iran, words like "imo" (aunt) and "gomo" (aunt) are used, and about 90% of their language is similar to Korean. This suggests that Korea once ruled as far as Iran and even Europe. The Shia sect in Islam, which emphasizes lineage and "seeds" (bloodline), also uses a term that sounds like the Korean word for "seed" (ssi-at). The Sunni sect, which values hierarchy and seniority, also uses a term that sounds like the Korean word for "rank" (suni). These linguistic connections suggest a deep historical influence of Korea on global cultures and religions. 
 
 
@@ -62,7 +62,7 @@ Jesus chose Judas, knowing he would betray him, because Judas's role was essenti
 
 
 ## 00:33:00 The Extinction of Dinosaurs and Earth's Transformation
-![image](https://resource.lilys.ai/images/output_stream_x1zi7gq12zs.png)
+
 Why did dinosaurs go extinct overnight? It wasn't because God made a mistake. There were 90 billion dinosaurs on Earth, ten times the current human population, and they were many times larger than humans. They roamed everywhere. God eliminated them all at once to create oil, which would be needed for humanity. The Earth's temperature rose to over 100 million degrees Celsius, even up to 600 million degrees, melting rocks and everything else. This molten material then became the oil fields we know today. This was part of the creation process to prepare the Earth for human life. A meteor strike, like the one in Mexico, caused this sudden heating, turning the Earth into a fiery inferno. The resulting smoke blocked the sun, causing a sudden ice age. This massive transformation created vast quantities of oil and coal. Forests were burned and compressed into coal, and oceans were displaced, creating salt flats on mountaintops and new seas like the Red Sea and the Dead Sea. 
 
 
