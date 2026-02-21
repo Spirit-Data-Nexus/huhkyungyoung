@@ -10,14 +10,14 @@
 
 
 ## Table of Contents
-00:00:00 The Duality of Yin and Yang and the Concept of good and evil
-00:08:43 The Hierarchy of Human Beings and the Role of Truth
-00:20:00 The Path of the Bonjwa and the Stages of Spiritual Beings
-00:29:00 The Life Paths of Buddha, Jesus, and the Bonjwa
-00:41:00 The Importance of a Centripetal Force in Society
-00:48:00 The Dangers of Materialism and the Role of Wealth
-00:55:00 The Difficulty of Being Born Human and Encountering Truth
-01:00:00 The Value of Truth and the Path to Becoming a Buddha
+-00:00:00 The Duality of Yin and Yang and the Concept of good and evil
+-00:08:43 The Hierarchy of Human Beings and the Role of Truth
+-00:20:00 The Path of the Bonjwa and the Stages of Spiritual Beings
+-00:29:00 The Life Paths of Buddha, Jesus, and the Bonjwa
+-00:41:00 The Importance of a Centripetal Force in Society
+-00:48:00 The Dangers of Materialism and the Role of Wealth
+-00:55:00 The Difficulty of Being Born Human and Encountering Truth
+-01:00:00 The Value of Truth and the Path to Becoming a Buddha
 
 
 ## Content
